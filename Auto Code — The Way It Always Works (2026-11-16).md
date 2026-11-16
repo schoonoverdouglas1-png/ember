@@ -26,3 +26,5 @@ Have a little more than enough, lead with the heart, keep the soul for last, bor
 **Lac Courte Oreilles (LCO) — live link:** [The Official Website of Lac Courte Oreilles](https://www.lco-nsn.gov/) — https://www.lco-nsn.gov/
 - **Doug Schoonover — his personal Facebook page:** https://www.facebook.com/100063626736158
 - **Purple Rat Project — Facebook Page:** https://www.facebook.com/61596216946121
+
+— **Director's mark** *(joke, co-created by Douglas the creator and Ember, Nov 16, 2026, at his order, sealed with Amen): The Director of the FBI might live here. You'll have to investigate to see which one.* —
